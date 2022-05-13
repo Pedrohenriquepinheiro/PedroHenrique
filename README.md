@@ -7,8 +7,6 @@
 
 - Aprendo rápido
 
-- Esforçado
-
 - Trabalho em equipe
 
 ##
